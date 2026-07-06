@@ -1,4 +1,4 @@
-# 
+# Ultimato momentum trading bot fluxo de trabalho for Mac OS | VIP momentum trading bot fluxo de trabalho for PC Windows. Featuring negociação de futuros and API de exchange descentralizada — optimized for maximum performance.
 
 
 
